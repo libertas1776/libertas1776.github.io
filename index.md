@@ -13,3 +13,5 @@ STEAM was one of my most interesting experiences at MCC. STEAM stands for scienc
 ## CCNA
 I didn't know anything about IT certifications before comign Mitchell but Mr. Theisen introduced them to me. The curriculum he was teaching lined up with the CCNA so he highly encouraged us to pursue that certification. I took his advice and began studying vigorously for the test. I am proud to say that while working two jobs and attending school full time, I earned my CCENT on Novemeber 22, 2019 and my CCNA on February 21, 2020. This journey was challenging but it was so satisfying passing those two tests which I had spent countless hours studying for. I won't be stopping there, I plan to achieve many more certifications by the time I'm done.
 
+## My Degree
+I have spent five semesters at Mitchell Community College and I will be leaving with an A.A.S. in Information Technology with a concentration in networking. I am so proud of myself and so glad that my hard work will have paid off. I can't thank my teachers, peers, and family enough for all their help in getting me to the end.
