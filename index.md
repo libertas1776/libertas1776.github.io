@@ -3,3 +3,4 @@ I started attending classes at Mitchell in January 2018. At that time, I was not
 
 1. My Professors
 I had many interesting and unique professors throughout my time at Mitchell, but none have left a greater impact on me than Robert Theisen and Gregory Cain. Their passion to instruct and guide others through the IT field is selfless and truly inspiring. 
+
